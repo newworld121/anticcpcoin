@@ -6,7 +6,9 @@ Anticcpcoin Core integration/staging tree
 https://anticcpcoin.com
 
 Join us now,getting 100,000 ATC coins for free
+
 Telegram:anticcpcoin[https://t.me/+K2Fa9P4TiAc1Yjkx]
+
 Twitter:anticcpcoin [https://twitter.com/anticcpcoin]
 
 What is Anticcpcoin?
